@@ -51,3 +51,7 @@
 | 功能需求、 | 非功能需求 | 其他 |
 
 
+![NKUST](NKUST.PNG "高科大")
+
+
+[![酒肉朋友互相傷害？！火焰高粱牛肉鍋](https://i.imgur.com/a0PDpf3.png)](https://www.youtube.com/watch?v=Uws9moVawbs "酒肉朋友互相傷害？！火焰高粱牛肉鍋 Kaoliang Liquor Beef hot pot｜Feat.恩熙俊 aka MC Jeng｜Fred吃上癮")
